@@ -1,4 +1,4 @@
-## Strofonnof
+## Strogonnof
 
 INGREDIENTES
 ------------
